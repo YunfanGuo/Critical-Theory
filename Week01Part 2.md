@@ -1,1 +1,9 @@
-Journal Entry
+# Journal Entry 2
+
+In this space station, all individuals are striving for the future and individual differences are accommodated. Disability is expected and welcomed. Every individual can thrive in it.
+
+Everyone can choose what they want to do, regardless of productivity. Everyone has the right to be a builder and a designer. As active participants, people with disabilities can provide and apply the most effective, developmentally appropriate information to life, design, and research. The facilities in the space station will all be accessible, and they will all be designed and made with the participation of people with appropriate differences. Likewise, individuals can make any changes to their differences. It is possible to customize and adapt it artistically or, through interdependence, to design practical tools that are more in line with an autonomous approach. And there will be more logical and accessible access to the public facilities of the space station, and in places such as hospitals, there will be less commercialization of the facilities to make them inclusive of each individual. In this way, the contradictions of disability as a whole are dealt with. All tools and equipment on the station will be equitable, aiming to make life easier for each individual, Neither seeks to overcome disability nor is it mired in the celebration of individual difference itself.
+
+The selection of people on the station is fair and tolerant of physical differences between individuals, but it is necessary for people to respect each other and to treat all people equally and without distinction. People are interdependent.
+
+The most valuable aspect of this process is that it brings each individual closer together and makes the social group better and more equitable in every respect. The life of each individual is more natural and comfortable, without conflicts arising from individual differences.
